@@ -1,1 +1,0 @@
-# ghzasaz-project
